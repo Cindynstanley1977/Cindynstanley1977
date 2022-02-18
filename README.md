@@ -1,0 +1,13 @@
+- 👋 Hi, I’m @Cindynstanley1977
+- 👀 I’m interested in ...
+- 🌱 I’m currently learning ...
+- 💞️ I’m looking to collaborate on ...
+- 📫 How to reach me ...
+
+<!---
+Cindynstanley1977/Cindynstanley1977 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+You can click the Preview link to take a look at your changes.
+--->
+**This is what happens when you push someone to the point of no return**
+"I'm coming for you. . . . . LMFAO, and for you as well . You know who you are. 
+Queen👑Elizabeth & her Master Manipulator. 
